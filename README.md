@@ -1,0 +1,5 @@
+- 👋 Hi, I’m boooys,and studing in xi'an university Post ＆ Telecommunication.
+- 👀 I’m interested in coding.
+- 🌱 I’m currently learning CS.
+- 💞️ I’m looking to learning on internet.
+- 📫 How to reach me QQ:1056646639.
